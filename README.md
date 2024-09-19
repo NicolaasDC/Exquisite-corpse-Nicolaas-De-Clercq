@@ -1,1 +1,0 @@
-# Exquisite-corpse-Nicolaas-De-Clercq
